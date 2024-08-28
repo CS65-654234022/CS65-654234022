@@ -5,6 +5,8 @@
 
 - 📫 How to reach me **anasyusoh47@gmail.com**
 
+- 📄 Know about my experiences [https://www.canva.com/design/DAF4wMcXFR4/WZwDP9eUkCbVT8m1ESaYiw/edit?utm_content=DAF4wMcXFR4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAF4wMcXFR4/WZwDP9eUkCbVT8m1ESaYiw/edit?utm_content=DAF4wMcXFR4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
